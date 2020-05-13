@@ -1,0 +1,2 @@
+# WhenKosulIfadesi
+ WhenKosulIfadesi eklendi
